@@ -1,0 +1,11 @@
+---
+title: IELTS Listening 1
+date: 2020-05-27 20:03:19
+tags:
+disqusId: aitudou-blog
+---
+
+1. good morning, man. Welcome to Australian moving in experience. Can I help you?
+Well, how can you help me. I am out of air right now. Just come down now. Let me guess. You are moving and have a little confused.  That is exactly. I wil relocated to USA next month and I am having hard time to geting organized.  Here. Can I have your address and let me ask you a few questions. 
+<!-- More -->
+Oh, what should I call you. My name is Jane. Jane Bond. First of all, what is your work phone number and can I have some questions about things? My work phone is 94635550, but please try not to call me too often there. My boss hate personal calls/ So it is my mind, madam. So what address you will be shipping to? my new company is letting me stay temperatorily at 509 clark house, that C-L-A-R-K， 1137 university drive, in Seattle. Seattle, beautiful city I hear, mountain right beside the oution almost, coller than Australia too. OK. And wher you can pack your things? I get to start on Monday, March 11. Do you need any help after packing clean up. We have that for a small additional charge. Yee, that would be helpful. I premise the land lord that I give her the key back at 5 pm on Thursday 14th. Great. I just schedule the clean up on that day. By the way, the small amount of clean will be no dust.  Well, you do think everything. Oh, how much is it going to cost. Here is a list of basic prices. Oh, dear. This seems rather expensive. Yep, man. But you are paying the best. We are careful and we fast. __**Like we say, the anyway we break will be split record and getting removed.**__ Well, maybe that so. Oh, I nearly forget to tell you. I do not want my furniture to move with me. I want to look for apartment after I arrive to America. Would it possible to put the furniture in the store for a month then have sent to loan later. Cool, we chould do that all the time. Here a couple of the things. Here is a moving experience we try to package your things logically, we do not want throw some boxes. 
